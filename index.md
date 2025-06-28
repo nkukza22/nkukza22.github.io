@@ -59,7 +59,7 @@ Customer-focused and multilingual banking professional with 15+ years at Standar
 
 ## **References**  
 - **Mr. Abraham Pretorius**  
-  Team Leader – Tellers/BDC | 📞 082 755 8257  
+  Team Leader – Tellers/BDC
 - **Mr. Colin Kenny**  
   Change Management Manager  
 
